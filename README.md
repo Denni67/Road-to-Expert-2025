@@ -19,8 +19,8 @@ I'm Dennis, currently working as a **Support Engineer at Sharekhan**, using my e
 
 ## 🔗 Connect with Me
 
-- 📧 Email: your-email@example.com  
-- 💼 LinkedIn: [linkedin.com/in/yourprofile](#)  
+- 📧 Email: dennis.sunderrajan@gmail.com  
+- 💼 LinkedIn: www.linkedin.com/in/dennis-nadar  
 - 📊 Portfolio: coming soon...  
 
 ---
